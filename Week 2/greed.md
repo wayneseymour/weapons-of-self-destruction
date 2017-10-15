@@ -32,7 +32,7 @@ Abundance mind set
 
 > Isaiah 32:8 (NLT)
 
-### luke 10:30
+### [Luke 10:30](https://www.bible.com/bible/97/LUK.10.msg) 
 
 ```
 Jesus answered by telling a story. “There was once a man traveling from Jerusalem to Jericho. On the way he was attacked by robbers. They took his clothes, beat him up, and went off leaving him half-dead. Luckily, a priest was on his way down the same road, but when he saw him he angled across to the other side. Then a Levite religious man showed up; he also avoided the injured man.
